@@ -1,4 +1,4 @@
-https://virtualuserx.github.io/balikcisacmetal/
+https://balikcisacmetal.com/
 
 Balıkcı metal WEebsite demo
 
